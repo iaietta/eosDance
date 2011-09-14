@@ -14,4 +14,4 @@
 
 [Tinlids Parties](http://www.tinlidsparties.com/)
 
-[Teresas Cakes](www.tereasas-cakes.webs.com)
+[Teresas Cakes](www.tereasas-cakes.webs.com) Tereasa has been making cakes for years for family and friends before starting her popular business. Cakes for all occasions, from fairy cakes to layer cakes, birthday, weddings, christenings, celebrations or just a good old dessert. Cookies also available. Just contact her if you wish to discuss your unique project.
